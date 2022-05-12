@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @vecheto
-- 👀 I’m interested in Astronomy, Physics.
+- 👀 I’m interested in Planetary Science and Astronomy.
 - 📫 How to reach me:
                 - Email: vicentemaldonado00@gmail.com
 
